@@ -1,1 +1,1 @@
-# PRANGATE.github.io ku
+# PRANGATE.github.io
